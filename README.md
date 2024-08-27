@@ -1,1 +1,1 @@
-# qualquer-um
+ olá, sou João Pedro e torço para o clube de regatas flamengo.Gosto muito de matemática, e meu objetivo na vida é ser dono de uma empresa e trensformar ela em uma potência mundial.Bom eu sou aluno do colégio estadual Dirce de Aguiar Maia, na cidade de maringá no estado do Paraná no Brasil que fica na américa do sul que fica no planeta terra.Tenho 16 anos e estou no primeiro ano do ensino médio.
